@@ -20,7 +20,7 @@
 #### HEALTH - [STONEFIST](http://music.163.com/song/33781925?userid=69151403)
 #### Crystal Castles - [Fleece](http://music.163.com/song/426027450?userid=69151403)
 #### Peaches - [More](http://music.163.com/song/18206526?userid=69151403)
-## [第三期]【https://b23.tv/zFt4cxn) 
+## [第三期](https://b23.tv/zFt4cxn) 
 ### 回春丹 - [梦特别娇 (Live)](http://music.163.com/song/2074367145?userid=69151403)
 #### Parcels - [Overnight](http://music.163.com/song/485612743?userid=69151403)
 ### 超级市场 - [听风 (Live)](http://music.163.com/song/2074367227?userid=69151403)
