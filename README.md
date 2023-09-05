@@ -5,6 +5,9 @@
 
 [表情银行MimikBanka的个人空间-哔哩哔哩](https://b23.tv/1NqFbiM)
 
+下面歌单同步添加到网易歌单
+[德夏](https://music.163.com/playlist?id=8713283023&userid=69151403)
+
 # 歌单
 ## [第一期](https://b23.tv/0C1e51B)
 ### 柏林护士 - [Here Comes The Gangster (Live)](http://music.163.com/song/2071926348?userid=69151403)
