@@ -52,6 +52,13 @@
 #### Timber Timbre - [Grand Canyon](http://music.163.com/song/28315377?userid=69151403)
 ### 火星电台 - [陆垚知马俐 (Live)](http://music.163.com/song/2076688864?userid=69151403)
 #### Yes - [Close To The Edge](http://music.163.com/song/2020371216?userid=69151403)
+## [第六期](https://b23.tv/92O9KMQ)  
+### SoulFa 灵魂沙发 - [Lover Song (Live)](http://music.163.com/song/2076687805?userid=69151403)
+#### SoulFa 灵魂沙发 - [Who murdered my happiness?](http://music.163.com/song/1821291917?userid=69151403)
+### Peace Hotel(和平饭店) - [在时间的答案里 (Live)](http://music.163.com/song/2076688802?userid=69151403)
+#### Radiohead - [Nude](http://music.163.com/song/18795450?userid=69151403)
+
+
 
 
 
